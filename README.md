@@ -1,0 +1,1 @@
+Bahtcoin Token is built for use as a digital money to provide convenience to users in accordance with all laws and requirement for these digital assets is to create the first Token which could require adding more choice for people to use a digital token to facilitate digital assets transactions.
